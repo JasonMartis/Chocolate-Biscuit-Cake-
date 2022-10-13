@@ -1,3 +1,11 @@
+INGREDIENTS
+
+200 g rich tea or digestive biscuits vegan
+200 g dark chocolate
+100 g coconut oil
+100 g maple syrup
+50 g walnuts/ goji berries
+
 INSTRUCTIONS
 
 Put the dark chocolate in a bain-marie together with the coconut oil and melt. Once melted, remove from the heat, add the maple syrup in and mix well. Leave this bowl on the bain marie to keep it liquid.
